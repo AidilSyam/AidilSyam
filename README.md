@@ -4,7 +4,7 @@ Perkenalkan nama saya **Aidil Syam**.
 
 Saya **Alumni Studi Independen Bersertifikat (SIB)** di [Dicoding](https://www.dicoding.com/).  
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](linkedin.com/in/aidil-syam-bb834b267) ku ya.
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](www.linkedin.com/in/aidil-s-bb834b267) ku ya.
 
 <p align="left">
 <a href="https://github.com/AidilSyam">
